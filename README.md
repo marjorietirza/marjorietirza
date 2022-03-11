@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @marjorietirza
-- 👀 I’m currently working as Product Designer
-- 😆 I’m interested in education, stocks, and TV series
+- 👀 I’m currently working as Product Designer at Pluang
+- 😆 I’m interested in education, stocks 📈📉 💸, and TV series 📺
 - 📫 How to reach me: marjorietirza98@gmail.com
 
 <!---
